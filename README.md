@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there, I'm Arturo Dix 👋
 
 
 I seek to develop and stand out in the technological field with a focus on business. I am a proactive person who always tries to take advantage of opportunities and make the best of them. My mission is to add value to the development of technological projects and use my skills for social and environmental benefit. I seek to build an extraordinary future through my vision and perspective.
